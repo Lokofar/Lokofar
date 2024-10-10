@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lokofar
+- 👋 Hi, I’m @EDwardosama
 - 👀 I’m interested in Ai, Programming, Software, Cyberscuirty, Machine learning, Physics, space.
 - 🌱 I’m currently learning Everything About Techno, programming 
 - 💞️ I’m looking to collaborate on ...
